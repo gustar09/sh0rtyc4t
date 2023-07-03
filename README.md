@@ -1,1 +1,1 @@
-<img src="https://gifer.com/en/gifs/loading">
+<img src="https://i.gifer.com/ZKZg.gif">
